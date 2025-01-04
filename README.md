@@ -11,4 +11,7 @@ Hour counter on Employee account
 Sketch a complete UX version
 Look for examples online
 
+=Found https://www.youtube.com/results?search_query=build+employee+database+aws
 Post results here
+
+
