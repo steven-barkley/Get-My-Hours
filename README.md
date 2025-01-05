@@ -9,6 +9,8 @@ Needs a database of employees
 Hour counter on Employee account
 
 Sketch a complete UX version
+= Use the sketchbook first 
+- Then use the Digital Program FIGMA
 Look for examples online
 
 =Found https://www.youtube.com/results?search_query=build+employee+database+aws
