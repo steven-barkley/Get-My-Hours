@@ -16,4 +16,6 @@ Look for examples online
 =Found https://www.youtube.com/results?search_query=build+employee+database+aws
 Post results here
 
+Set 1 hour a day to work on this or another Capstone project
+
 
