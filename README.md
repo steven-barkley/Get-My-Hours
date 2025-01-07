@@ -18,4 +18,5 @@ Post results here
 
 Set 1 hour a day to work on this or another Capstone project
 
+***Hard to get the focus, time ,and will to work*** 1/7/2025 Try again 
 
