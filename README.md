@@ -26,3 +26,5 @@ I got relaxed and in a habit of work and errands only and forgot to do a simple 
 I nearly missed today as well 1/10/2025
 
 Correction I only missed one day. 
+Here we go again. Yesterday I spent my time having a lot of fun playing AC 6 and watching YouTube. It was a long week in the cold overnight at work. 
+Now let's focus on Building Apps even if it's not this one or something much more simple. Spend focused time doing what is necessary to build a vending machine business of applications that people need. 
