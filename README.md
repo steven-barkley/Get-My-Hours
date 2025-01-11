@@ -24,3 +24,5 @@ Set 1 hour a day to work on this or another Capstone project
 I missed two full days of contributions!!
 I got relaxed and in a habit of work and errands only and forgot to do a simple thing. 
 I nearly missed today as well 1/10/2025
+
+Correction I only missed one day. 
