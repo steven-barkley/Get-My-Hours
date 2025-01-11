@@ -21,3 +21,6 @@ Set 1 hour a day to work on this or another Capstone project
 ***Hard to get the focus, ,time ,and will to work*** 1/7/2025 Try again 
 **Focus deeply on one skill to master, then execute** Next.js - Kubernetes - DynamoDB etc. 
 
+I missed two full days of contributions!!
+I got relaxed and in a habit of work and errands only and forgot to do a simple thing. 
+I nearly missed today as well 1/10/2025
