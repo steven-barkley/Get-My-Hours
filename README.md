@@ -30,3 +30,5 @@ Here we go again. Yesterday I spent my time having a lot of fun playing AC 6 and
 Now let's focus on Building Apps even if it's not this one or something much more simple. Spend focused time doing what is necessary to build a vending machine business of applications that people need. 
 
 Today and tomorrow I have to relax before I am locked into 6 or 7 days a week working. But if the hours are short I can study more and test faster. If the hours or long I earn more and can save faster.  Do more faster.
+
+So I am not contributing to repo or starting on assignment. I don't want to be a B.S. person. I am focused primarily on fitness but I can do incremental work just a bit at a time with the right guideline. I just need the mental strength.
