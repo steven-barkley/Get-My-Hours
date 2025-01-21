@@ -33,4 +33,6 @@ Today and tomorrow I have to relax before I am locked into 6 or 7 days a week wo
 
 So I am not contributing to repo or starting on assignment. I don't want to be a B.S. person. I am focused primarily on fitness but I can do incremental work just a bit at a time with the right guide line. I just need the mental strength.
 
-I am sacrificing my future for my present. I work and gym but do not focus on my commits. I only need to do one line of writing and I neglect it. It's only what I deem most important but not what I treat as most important. gggggggg
+I am sacrificing my future for my present. I work and gym but do not focus on my commits. I only need to do one line of writing and I neglect it. It's only what I deem most important but not what I treat as most important.
+
+I did no studies to on account of my poor sleep schedule and no focus at work consider setting up hours for a specific performance.
