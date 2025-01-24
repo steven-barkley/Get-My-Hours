@@ -37,4 +37,4 @@ I am sacrificing my future for my present. I work and gym but do not focus on my
 
 I did no studies to on account of my poor sleep schedule and no focus at work consider setting up hours for a specific performance.
 
-I don't know what I am doing. I need to simply and execute ready practice that leads to real outcome. I am burning time.
+I don't know what I am doing. I need to simply and execute ready practice that leads to real outcome. I am burning time. I suck.
