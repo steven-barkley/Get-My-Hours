@@ -39,4 +39,4 @@ I did no studies to on account of my poor sleep schedule and no focus at work co
 
 I don't know what I am doing. I need to simply and execute ready practice that leads to real outcome. I am burning time. I suck.
 
-Consistency means you do what you planned despite the weather. But I am allowing myself to fail.
+Consistency means you do what you planned despite the weather. But I am allowing myself to fail. bndfhdf
